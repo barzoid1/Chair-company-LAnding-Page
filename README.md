@@ -1,1 +1,1 @@
-# Chair-company-LAnding-Page
+# Chair-company-Landing-Page.
